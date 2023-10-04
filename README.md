@@ -8,4 +8,4 @@
 
 ![Logo](https://firebasestorage.googleapis.com/v0/b/portafoliotmg.appspot.com/o/banner.png?alt=media&token=2a29ccd8-fc34-4399-b587-d735931eef3e)
 
-My name is Thomas Munoz, I am a software development student at the University of Cesde and Comfama. I have just turned 18 years old and I did the technical average of software developer in school with the SENA.I have as a goal to convert with the help of time and my efforts into a great programmer and im looking for a guy with big muscles.
+My name is Thomas Munoz, I am a software development student at the University of Cesde and Comfama. I have just turned 18 years old and I did the technical average of software developer in school with the SENA.I have as a goal to convert with the help of time and my efforts into a great programmer and im looking for a guy with big muscles and a long schmief.
